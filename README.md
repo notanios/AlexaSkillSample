@@ -1,0 +1,1 @@
+# AlexaSkillSample Privacy Policy
